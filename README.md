@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Lararoft19
 - 👀 I’m interested in A lot of things
-- 🌱 I’m currently learning how to live
-- 💞️ I’m looking to collaborate on living with human being
+- 🌱 I’m currently learning how to live and not procrastinate too much
+- 💞️ I’m looking to collaborate with selected human being
 - 📫 Reach me at your own risk 
 
 <!---
